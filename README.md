@@ -15,3 +15,8 @@
 ### 每人上架一个 App 
 
 > 申请软著并发布到 GooglePlay
+
+---
+
+`Course video`
+[https://pan.baidu.com/s/1Q7GQud4izA83nL8FpK4Nfg](https://pan.baidu.com/s/1Q7GQud4izA83nL8FpK4Nfg)
